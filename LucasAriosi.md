@@ -1,1 +1,0 @@
-Meu Nome é Lucas E eu sou o dono desse arquivo!!
